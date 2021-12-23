@@ -11,7 +11,7 @@
 
 [**Spotify**](https://open.spotify.com/playlist/3Z46qeKfJBCmFSYXpH3cMo?si=24d0fb8edc804595)
 
-[**VK Music**](https://vk.com/music/playlist/315908433_2)
+[**VK Music**](https://vk.com/music/playlist/315908433_2_30b43e51eb93bcc19e)
 
 #### Russian Новый год
 
@@ -19,7 +19,7 @@
 
 [**Spotify**](https://open.spotify.com/playlist/1xt0AhShlmTkxEhR8Ezd7m?si=5f304cd121c2475b)
 
-[**VK Music**](https://vk.com/music/playlist/315908433_3)
+[**VK Music**](https://vk.com/music/playlist/315908433_3_d361700230f42dd4fe)
 
 #### Для одновременно умных и красивых:
 
@@ -27,7 +27,7 @@
 
 [**Spotify**](https://open.spotify.com/playlist/3LL6vjcLbrlNwAlD1szoND?si=8df79257bdb4498f)
 
-[**VK Music**](https://vk.com/music/playlist/315908433_4)
+[**VK Music**](https://vk.com/music/playlist/315908433_4_5055a24d76ec4751ba)
 
 #### Отрываю от сердца
 
@@ -71,4 +71,4 @@
 
 ### Если заметили ошибку:
 
-Напишите мне в ДМ в [**Инстаграм**](https://www.instagram.com/imphilat) или в Telegram.
+Напишите мне в DM в Instagram, Twitter или в Telegram.
